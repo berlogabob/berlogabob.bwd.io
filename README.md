@@ -1,1 +1,2 @@
 # berlogabob.bwd.io
+пРИВЕТИКИ
